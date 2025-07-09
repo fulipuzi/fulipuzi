@@ -1,3 +1,7 @@
+独立发布页：
+
+https://about.me/fulipuzi
+
 请保存发布页为书签
 
 福利铺子永久地址： 
